@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a 3rd year CSE student.
+I'm a 4th year CSE student.
 
 
 ## 🌐 Socials:
